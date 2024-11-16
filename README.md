@@ -1,4 +1,4 @@
-# Stranger Things: A Personal Explanation
+# Stranger Things
 
 Stranger Things is a thrilling and nostalgic series set in the 1980s. It follows a group of kids in the small town of Hawkins, Indiana, as they encounter supernatural events and government conspiracies. The show masterfully blends elements of horror, science fiction, and adventure, making it a captivating watch.
 
